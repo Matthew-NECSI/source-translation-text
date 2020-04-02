@@ -71,3 +71,4 @@ More family guidelines →
 For breaking updates and new recommendations, follow [Yaneer Bar-Yam](https://twitter.com/yaneerbaryam) and [End Coronavirus Dot Org](https://twitter.com/endCOVID19) on Twitter.
 
 
+Home    All Guidelines    FAQs    About Us 
